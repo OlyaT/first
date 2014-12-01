@@ -6,3 +6,4 @@ What was thy pity's recompense?
 A silent suffering, and intense;
 The rock, the vulture, and the chain,
 All that the proud can feel of pain, 
+Byron
